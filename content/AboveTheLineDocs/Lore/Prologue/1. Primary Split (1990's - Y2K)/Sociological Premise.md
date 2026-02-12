@@ -1,0 +1,5 @@
+Even prior to the events of ***Y2K*** described in [[Technological Premise]], a general distrust and feeling of instability has already seeped into the collective mind of the global population and society. All of this, defined through another major break from our timeline: ***The slowed dissolution of the USSR.***
+
+*The dissolution of the Soviet Union* did not arrive as a dramatic rupture but as a managed, month-long divide, following years of *Perestroika*, in which authority retreated incrementally rather than collapsing outright — borders softened before they broke, and the ***Berlin Wall*** was not toppled in defiance but opened, dismantled piecemeal, and ultimately abandoned half-standing as an unresolved remnant. This slow exit denied the world a clear moral inflection point: no victory, no reckoning, no symbolic defeat of a system: *only its administrative expiration.*
+
+The sociological consequence was a global reorientation of expectations: systems were no longer believed to fall, only to linger, mutate, and withdraw when inconvenient, fostering a durable suspicion that change is cosmetic, progress incomplete, and history incapable of closure.
