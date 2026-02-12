@@ -1,1 +1,0 @@
-- **A powerful hydrothermal explosion rocks an unpopulated section of Yellowstone. Geysers shut down. Sulfur fogs roll through parts of Wyoming and Colorado. The scientific community is nearly unanimous: a VEI-7+ (8) event is imminent. Still, no civilian evacuation is declared.**

@@ -1,1 +1,0 @@
-- **A major quake hits north of Powell. Roads buckle. Emergency broadcasts test-run quietly. A short federal statement references “regional seismic instability,” buried in late-night news cycles. Meanwhile, selected personnel are quietly relocated or sealed underground.**

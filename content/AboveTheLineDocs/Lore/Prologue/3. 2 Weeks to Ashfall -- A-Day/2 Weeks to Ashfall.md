@@ -1,1 +1,0 @@
-- **Powell and surrounding regions experience minor quakes. Satellite-based thermal and ground deformation data show alarming trends. A few online leaks stir speculation, but are quickly dismissed as doomsaying. Internally, confidence in an eruption grows.**
