@@ -1,0 +1,3 @@
+ **Unusually high counts of seismic swarms and minor uplift begin in Yellowstone. Scientists at USGS and global observatories note irregular gas release patterns. Official reports label it "non-threatening," but internal memos flag the need for further monitoring.**
+
+*A slight smell of burnt matchsticks reaches outwards of 30-50 km (19-30 mi), dismissed as usual emission smog by dedicated reporters. Yellowstone National Park remains open, and hosts new geyser observation decks, albeit less frequented due to the slight eye-stinging vapor surrounding the main site.*

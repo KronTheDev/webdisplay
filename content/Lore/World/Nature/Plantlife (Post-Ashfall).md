@@ -1,0 +1,15 @@
+
+- Large-scale plant die-off occurred within the first months due to ash coverage, acid rains, and lack of sunlight.
+- Trees persist unevenly:
+    - Lower elevations: skeletal, leafless trunks; bark erosion visible => functionally dead.
+    - Above the Line: some minor plants survive in rather brittle forms.
+- Photosynthesis is severely impaired; surviving flora relies on reduced metabolic cycles, ash-filtered light, and partly, some fungal symbiosis.
+- Crops are unreliable and labor-intensive:
+    - Soil must be constantly filtered or replaced.
+    - Growth lamps exist but are power-expensive and low yield.
+- Mosses, lichens, and ash-tolerant fungi dominate urban surfaces, forming gray-green biofilms on concrete and steel.
+- Fruit-bearing plants are very rare and highly valued.
+- Root systems destabilize structures:
+    - Dead roots rot underground.
+    - Surviving invasive growth cracks weakened concrete.
+- Vegetation is no longer “scenery,” making it a resource, a hazard, and/or a sign of long-term abandonment.

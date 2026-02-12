@@ -1,0 +1,1 @@
+- **DARPA begins quiet distribution of emergency respirators and iodine tablets to military and federal facilities. FEMA is deployed under the guise of "earthquake preparedness." The public remains largely unaware. Panic is deemed a bigger threat than the volcano.**
