@@ -14,3 +14,7 @@ This project is developed through a structured, **Phase-based** production model
 ***This site documents the world, systems, and roadmap behind the work.***
 
 *Build carefully.* **Move forward.**
+
+
+Above The Line (Video Game)  © 2026 by Andrew Pie is licensed under CC BY-NC-ND 4.0. To view a copy of this license, visit https://creativecommons.org/licenses/by-nc-nd/4.0/
+
