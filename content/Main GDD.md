@@ -6,14 +6,14 @@
 
 ### Game Credits
 
-**Project Director** - Andrew “Kron” Pie
-**Project Advisor** - Satalit
-**Worldbuilding / Narrative Lead** – Andrew “Kron” Pie, Ratlas
-**Programming** – h0lybyte
-**3D Art** – Yassin "Eisen", NoobForLunch
-**2D/UI** – NoobForLunch
-**Audio** – TBA  
-**Advisory / Technical Oversight** – TalkyMuffy
+* **Project Director** - Andrew “Kron” Pie
+* **Project Advisor** - Satalit
+* **Worldbuilding / Narrative Lead** – Andrew “Kron” Pie, Ratlas
+* **Programming** – h0lybyte
+* **3D Art** – Yassin "Eisen", NoobForLunch
+* **2D/UI** – NoobForLunch
+* **Audio** – TBA  
+* **Advisory / Technical Oversight** – TalkyMuffy
 
 ---
 
