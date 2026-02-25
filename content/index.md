@@ -15,6 +15,7 @@ This project is developed through a structured, **Phase-based** production model
 
 *Build carefully.* **Move forward.**
 
+*Any and all content presented hereinafter, is under following licencing, unless stated otherwise:*
 
 Above The Line (Video Game)  © 2026 by Andrew Pie is licensed under CC BY-NC-ND 4.0. To view a copy of this license, visit https://creativecommons.org/licenses/by-nc-nd/4.0/
 
