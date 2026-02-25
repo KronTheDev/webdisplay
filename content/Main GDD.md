@@ -2,6 +2,10 @@
 
 ### _The world didn’t end. It changed the terms of survival._
 
+## Licence
+
+Above The Line (Video Game)  © 2026 by Andrew Pie is licensed under CC BY-NC-ND 4.0. To view a copy of this license, visit https://creativecommons.org/licenses/by-nc-nd/4.0/
+
 ---
 
 ### Game Credits
